@@ -1,0 +1,2 @@
+# hello-tech
+Geofencing remains relatively new. While more businesses experiment with technology, creative marketers will come up with more innovative ways to maximize their potential for long-term benefits. If you are thinking of experimenting with geofencing for promotion, confirm you are qualifying your prospects supported supply and demand, and make an irresistible offer for the simplest results.
